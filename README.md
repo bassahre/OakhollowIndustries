@@ -8,7 +8,7 @@ The most important things in my life are:
 - My Friends & Family
 - My Dogs 
 
-I currently work in HR within a Recruiting group; I have a passion for helping folks find a fulfilling career. I LOVE to camp and my favorite holiday is _Halloween!_ 
+I currently work in HR within a Recruiting group; I have a passion for helping folks find a fulfilling careers. I LOVE to camp and my favorite holiday is _Halloween!_ 
 
 
 
