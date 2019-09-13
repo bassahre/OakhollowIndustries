@@ -10,5 +10,5 @@ The most important things in my life are:
 
 I currently work in HR within a Recruiting group; I have a passion for helping folks find a fulfilling career. I LOVE to camp and my favorite holiday is _Halloween!_ 
 
-### Markdown
+
 
